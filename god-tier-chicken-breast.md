@@ -7,7 +7,7 @@ Brine
 1. To brine chicken, simply fill a big bowl with lukewarm (not hot) water
 2. Stir in a handful of salt until it mostly dissolves.
 3. Remove the chicken from the brine.
-4. Give it a good rinse it with cold water to wash off the salt, and then pat it dry with some paper towels.
+4. Give it a good rinse with cold water to wash off the salt, and then pat it dry with some paper towels.
 
 Brush
 
