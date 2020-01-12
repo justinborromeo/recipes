@@ -1,4 +1,4 @@
-# God-tier chicken breast
+# Juicy Baked Chicken Breast
 
 This chicken breast is so juicy mmmmm.
 
