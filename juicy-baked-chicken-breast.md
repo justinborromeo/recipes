@@ -1,6 +1,4 @@
-# Juicy Baked Chicken Breast
-
-This chicken breast is so juicy mmmmm.
+# Baked Chicken Breast
 
 Brine
 
